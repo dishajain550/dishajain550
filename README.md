@@ -1,4 +1,4 @@
-## HI, IT'S DISHA JAIN 👋
+## HI THERE👋
 
 ## 👩‍💻 Disha Jain | Data Analyst | Machine Learning & Deep Learning Enthusiast
 
